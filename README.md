@@ -7,3 +7,6 @@ look at these :O
 ヾ(⌐■_■)ノ♪
 ♪~ ᕕ(ᐛ)ᕗ
 (;´༎ຶД༎ຶ`)
+(ಥ﹏ಥ)
+uunga buunga
+waga waga
