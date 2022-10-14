@@ -4,10 +4,5 @@ look at these :O
 (☞ﾟヮﾟ)☞ ☜(ﾟヮﾟ☜)
 (╯°□°）╯︵ ┻━┻
 ┬┴┬┴┤(･_├┬┴┬┴
-ヾ(⌐■_■)ノ♪
-♪~ ᕕ(ᐛ)ᕗ
-(;´༎ຶД༎ຶ`)
-(ಥ﹏ಥ)
-uunga buunga
-waga waga
-never gonna give you up never gonna let you down
+
+let's resolve some conflicts
